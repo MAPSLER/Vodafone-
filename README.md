@@ -1,6 +1,13 @@
 # Vodafone-
 Vodafone
 
+https://invite.viber.com/?g2=AQB4I2rWcqKZB0sl2u%2BHShEk9XirTK%2F3Pakn3Iz9ao12dYA022LtRtxBRVn2lj1h&lang=ru
+
+
+https://t.me/joinchat/AAAAAEM0M21h2xPzcFrDHw
+
+https://www.facebook.com/VFUkraine
+
 Cloud Киевстар Подключение *006*
 
 Подключение СМС	*264*30#	*264*100#
